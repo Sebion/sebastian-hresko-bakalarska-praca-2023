@@ -1,0 +1,1 @@
+# sebastian-hresko-bakalarska-praca-2023
